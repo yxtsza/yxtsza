@@ -2,7 +2,7 @@
 
 💻 FrontEnd Engineer <br>
 🎓 Undergraduate from China <br>
-☕ Developing with a sense of Design <br>
+
 
 ### Contact with me
 
