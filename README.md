@@ -1,7 +1,7 @@
 ### Hi there!
 
 💻 Front-End Engineer <br>
-🎓 Undergraduate from China <br>
+🎓 Graduated from primary school <br>
 
 
 ### Contact with me
