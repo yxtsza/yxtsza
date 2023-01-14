@@ -1,7 +1,7 @@
 ### Hi there!
 
 💻 Front-End Engineer <br>
-🎓 Graduated from primary school <br>
+🎓 Graduated From Primary School <br>
 
 
 ### Contact with me
