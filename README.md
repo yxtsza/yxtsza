@@ -1,6 +1,6 @@
 ### Hi there!
 
-💻 FrontEnd Engineer <br>
+💻 Front-End Engineer <br>
 🎓 Undergraduate from China <br>
 
 
